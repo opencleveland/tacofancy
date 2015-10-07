@@ -1,6 +1,6 @@
 <b>Cinnamon sugar salt</b>
 
-Makes two cups
+Makes 1/2 cup
 
 1/2 cup salt
 
